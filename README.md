@@ -1,0 +1,1 @@
+# maimo-affiliate-page
